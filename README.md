@@ -1,2 +1,2 @@
-# Kalbini-Ate-e-Ver
+# Kalbini-Atese-Ver
 Konuşamadığımız yerin dili olsun diye 
